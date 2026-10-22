@@ -21,4 +21,4 @@
 
 <p align="center">𝑖𝑓 𝑢 ℎ𝑎𝑣𝑒 𝑎𝑛𝑦 𝑐𝑜𝑚𝑚𝑜𝑛 𝑡ℎ𝑖𝑛𝑔 𝑤𝑖𝑡ℎ 𝑚𝑒 𝑏𝑒 𝑓𝑟𝑒𝑒 𝑡𝑜 𝑖𝑛𝑡 („• ֊ •„)੭
 
-
+<img src="https://i.postimg.cc/NfDmRcnT/relo.gif"> 
