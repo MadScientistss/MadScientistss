@@ -12,10 +12,10 @@
 𝑇ℎ𝑖𝑠 𝑐𝑜𝑢𝑙𝑑 𝑏𝑒 𝑐𝑎𝑙𝑙𝑒𝑑 𝐺𝑜𝑑'𝑠 𝑓𝑖𝑛𝑎𝑙 𝑤𝑎𝑟𝑛𝑖𝑛𝑔 𝑡𝑜 𝑡ℎ𝑜𝑠𝑒 𝑤ℎ𝑜 𝑠𝑡𝑖𝑙𝑙 𝑟𝑒𝑠𝑖𝑠𝑡."
 
 
+<p align="center"> . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+  
+<p align="center">(づᴗ _ᴗ)づ 𝑙𝑒𝑡'𝑠 𝑠𝑒𝑒 𝑡ℎ𝑖𝑛𝑔𝑠 𝑎𝑏𝑜𝑢𝑡 𝑚𝑒
 
-<p align="center">
-<img src="https://i.postimg.cc/YSJP6gPK/tle.jpg"> 
 
 
 
-<p align="center">hola
