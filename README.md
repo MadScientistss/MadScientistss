@@ -1,5 +1,5 @@
 
-<h1 align="center"> ︵︵︵︵︵︵︵︵︵︵︵︵︵︵</h1>
+<h1 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.</h1>
 
 <p align="center">
 <img src="https://i.postimg.cc/YCg59d0S/174b94b6424eb6ea470d484730e2792f.jpg"> 
@@ -14,7 +14,7 @@
 𝑇ℎ𝑖𝑠 𝑐𝑜𝑢𝑙𝑑 𝑏𝑒 𝑐𝑎𝑙𝑙𝑒𝑑 𝐺𝑜𝑑'𝑠 𝑓𝑖𝑛𝑎𝑙 𝑤𝑎𝑟𝑛𝑖𝑛𝑔 𝑡𝑜 𝑡ℎ𝑜𝑠𝑒 𝑤ℎ𝑜 𝑠𝑡𝑖𝑙𝑙 𝑟𝑒𝑠𝑖𝑠𝑡."
 
 
-<p align="center"> . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+<p align="center"> -ˋˏ✄┈┈┈┈┈┈┈
   
 <p align="center">(づᴗ _ᴗ)づ 𝑙𝑒𝑡'𝑠 𝑠𝑒𝑒 𝑡ℎ𝑖𝑛𝑔𝑠 𝑎𝑏𝑜𝑢𝑡 𝑚𝑒
 
@@ -27,4 +27,4 @@
 <img src="https://i.postimg.cc/NfDmRcnT/relo.gif"> 
 
 
-<h1 align="center"> ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶</h1>
+<h1 align="center"> . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.</h1>
